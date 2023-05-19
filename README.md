@@ -1,2 +1,2 @@
-# bruna
-victor lindo 
+➸ Bruna Lorena
+➸ Victor de Alencar
